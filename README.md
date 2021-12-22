@@ -1,0 +1,5 @@
+- 👋 Hi, I’m ana luiza
+- 👀 I’m interested in ...aprender😍
+- 🌱 I’m currently learning ...programação
+- 💞️ I’m looking to collaborate on ...empresas que contratam programadores
+- 📫 How to reach me:
